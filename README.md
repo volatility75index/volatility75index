@@ -5,7 +5,7 @@ Welcome to the command center of VOLATILITY 75 INDEX TRADING, where algorithmic 
 Volatility 75 is not a normal market.
 It is fast, aggressive, and unforgiving.
 
-START TRADING WITH BOTS TODAY: CREATE A DERIV ACCOUNT HERE
+<a href="https://track.deriv.com/_X4my-_6ZqrApl7dR3lTXiGNd7ZgqdRLk/1/">CLICK HERE TO CREATE DERIV FREE ACCOUNT</a>
 
 This strategy is built to read impulse strength, control drawdown, and execute with discipline under constant volatility pressure. Every rule exists to prevent emotional errors and capitalize on structured movement.
 
@@ -58,3 +58,8 @@ Overconfidence kills accounts.
 Discipline compounds.
 
 Trade it like a machine — or don’t trade it at all.
+
+- Contact me :
+- 📱 WhatsApp: [Chat Now](https://wa.me/2347046226788)  
+- 💬 Telegram: [@FrankFx Bot](https://t.me/unrulytech1)  
+- 📧 Email: frankfx22@gmail.com
